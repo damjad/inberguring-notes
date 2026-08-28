@@ -1,4 +1,4 @@
-# KNM A2 – Hoofdstuk 9: Geschiedenis en Geografie
+# KNM A2 – Hoofdstuk 8: Geschiedenis en Geografie
 
 ---
 

@@ -1,4 +1,4 @@
-# KNM A2 – Hoofdstuk 7: Werk en Inkomen
+# KNM A2 – Hoofdstuk 2: Werk en Inkomen
 
 ---
 

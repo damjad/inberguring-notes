@@ -1,4 +1,4 @@
-# KNM A2 – Hoofdstuk 8: Politiek
+# KNM A2 – Hoofdstuk 7: Politiek
 
 ---
 
